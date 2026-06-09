@@ -1,4 +1,4 @@
-# 
+# Personalizado NordVPN predefinições para Mac OS | Exclusivo NordVPN predefinições para PC Windows. Com análise de dados históricos e configurações privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
